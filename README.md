@@ -1,2 +1,6 @@
 # Hello-world
-Tanker, ideer
+
+Rajan
+
+Bare vent, vi mekker
+
